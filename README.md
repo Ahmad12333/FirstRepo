@@ -1,4 +1,1 @@
-112
-Ahmad Kirata
-=====
-2
+ Ahmad Kirata
